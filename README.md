@@ -14,4 +14,4 @@ Docente: Ph.D. John Willian Branch
 * Sesión 05: https://drive.google.com/file/d/1LErIa8AM2BvWYjAFgAohu7ZgkFklIvUr/view?usp=sharing
 * Sesión 06: https://drive.google.com/file/d/1yymEZV7Fg3qScgiFVjhQs3hGtqZl0FNB/view?usp=sharing
 * Sesión 07: https://drive.google.com/file/d/1iEbLN1Qs4jZIaTRAloW9QLSCfQtRb0XR/view?usp=sharing
-* Sesión 07: https://drive.google.com/file/d/1-3HiYBAvx97nZIDnzAJXCNJURDGgtwq8/view?usp=sharing
+* Sesión 08: https://drive.google.com/file/d/1-3HiYBAvx97nZIDnzAJXCNJURDGgtwq8/view?usp=sharing
