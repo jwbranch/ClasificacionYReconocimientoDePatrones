@@ -6,7 +6,7 @@ Universidad Nacional - Sede Medellin
 
 Docente: Ph.D. John Willian Branch  
 
-## Grabaciones  
+## Grabaciones Grupo 3  
 * Sesión 01: https://drive.google.com/file/d/1PXEC5jtYaf9gtX4GFfQnRqtFeRXREaPg/view?usp=sharing  
 * Sesión 02: https://drive.google.com/file/d/1MoatinjYKwgJIneA75mOhrkLlLLQtSrN/view?usp=sharing  
 * Sesión 03: https://drive.google.com/file/d/153wXzzp2b3pN8Jb8JtEl9fkj0SLhPtEG/view?usp=sharing
@@ -15,4 +15,7 @@ Docente: Ph.D. John Willian Branch
 * Sesión 06: https://drive.google.com/file/d/1yymEZV7Fg3qScgiFVjhQs3hGtqZl0FNB/view?usp=sharing
 * Sesión 07: https://drive.google.com/file/d/1iEbLN1Qs4jZIaTRAloW9QLSCfQtRb0XR/view?usp=sharing
 * Sesión 08: https://drive.google.com/file/d/1-3HiYBAvx97nZIDnzAJXCNJURDGgtwq8/view?usp=sharing
-* Sesión 01-Grupo#1y#2:https://drive.google.com/file/d/1Ydgaa3ckjedafuECf7nUAVk55XJn2Lc5/view?usp=sharing
+
+## Grabaciones Grupo 1 y 2
+* Sesión 01:https://drive.google.com/file/d/1Ydgaa3ckjedafuECf7nUAVk55XJn2Lc5/view?usp=sharing
+* Sesión 02:https://drive.google.com/file/d/12DO3YrsAoN8Nwd3Sj6g5KwDjCjgIDjB5/view?usp=sharing
