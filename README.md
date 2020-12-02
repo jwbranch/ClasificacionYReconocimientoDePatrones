@@ -15,6 +15,7 @@ Docente: Ph.D. John Willian Branch
 * Sesión 06: https://drive.google.com/file/d/1yymEZV7Fg3qScgiFVjhQs3hGtqZl0FNB/view?usp=sharing
 * Sesión 07: https://drive.google.com/file/d/1iEbLN1Qs4jZIaTRAloW9QLSCfQtRb0XR/view?usp=sharing
 * Sesión 08: https://drive.google.com/file/d/1-3HiYBAvx97nZIDnzAJXCNJURDGgtwq8/view?usp=sharing
+* Sesión 09: https://drive.google.com/file/d/1hbJkuD_LbEpWgWIdD_eJPHhDNNh_tcUJ/view?usp=drivesdk
 
 ## Grabaciones Grupo 1 y 2
 * Sesión 01:https://drive.google.com/file/d/1Ydgaa3ckjedafuECf7nUAVk55XJn2Lc5/view?usp=sharing
