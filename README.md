@@ -17,6 +17,7 @@ Docente: Ph.D. John Willian Branch
 * Sesión 08: https://drive.google.com/file/d/1-3HiYBAvx97nZIDnzAJXCNJURDGgtwq8/view?usp=sharing
 * Sesión 09: https://drive.google.com/file/d/1hbJkuD_LbEpWgWIdD_eJPHhDNNh_tcUJ/view?usp=drivesdk
 * Sesión 10: https://drive.google.com/file/d/1KGc3a0PCAWf5qsp5hWxFS3TolXcUOcRC/view?usp=sharing
+* Sesión 11: https://drive.google.com/file/d/1RUZftkKW0AQJV8M7v2-JswVU-ZF1Vh9c/view?usp=drivesdk
 
 ## Grabaciones Grupo 1 y 2
 * Sesión 01:https://drive.google.com/file/d/1Ydgaa3ckjedafuECf7nUAVk55XJn2Lc5/view?usp=sharing
@@ -27,3 +28,4 @@ Docente: Ph.D. John Willian Branch
 * Sesión 05_Parte 2:https://drive.google.com/file/d/19uEyIUfdJMw_sVUVW0UgznNLtBdWHchx/view?usp=sharing
 * Sesión 06:https://drive.google.com/file/d/1PjJcY_tpnLtayR5BKtF0B0tua7U-Opxv/view?usp=drivesdk
 * Sesión 07:https://drive.google.com/file/d/1xomX-2OeZJ1hMlCyyGkHLwEzd-6PxQ81/view?usp=sharing
+* Sesión 08:https://drive.google.com/file/d/12T8ARPHaKUJqaN637A9Ms1uE6hoSo70p/view?usp=drivesdk
