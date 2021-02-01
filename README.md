@@ -19,7 +19,7 @@ Docente: Ph.D. John Willian Branch
 * Sesión 10: https://drive.google.com/file/d/1KGc3a0PCAWf5qsp5hWxFS3TolXcUOcRC/view?usp=sharing
 * Sesión 11: https://drive.google.com/file/d/1RUZftkKW0AQJV8M7v2-JswVU-ZF1Vh9c/view?usp=drivesdk
 
-## Grabaciones Grupo 1 y 2
+## Grabaciones Grupo 1 
 * Sesión 01:https://drive.google.com/file/d/1Ydgaa3ckjedafuECf7nUAVk55XJn2Lc5/view?usp=sharing
 * Sesión 02:https://drive.google.com/file/d/12DO3YrsAoN8Nwd3Sj6g5KwDjCjgIDjB5/view?usp=sharing
 * Sesión 03:https://drive.google.com/file/d/1ngg67ziErh0HPPiUlfX7_btoD2_1p1C2/view?usp=drivesdk
@@ -29,3 +29,7 @@ Docente: Ph.D. John Willian Branch
 * Sesión 06:https://drive.google.com/file/d/1PjJcY_tpnLtayR5BKtF0B0tua7U-Opxv/view?usp=drivesdk
 * Sesión 07:https://drive.google.com/file/d/1xomX-2OeZJ1hMlCyyGkHLwEzd-6PxQ81/view?usp=sharing
 * Sesión 08:https://drive.google.com/file/d/12T8ARPHaKUJqaN637A9Ms1uE6hoSo70p/view?usp=drivesdk
+
+## Grabaciones Grupo 2
+* Sesión 03:https://drive.google.com/file/d/1mj8W_8z0Mv9WWvyNm0ZJ15tzf5jl8PJG/view?usp=sharing
+* Sesión 04:https://drive.google.com/file/d/1DlNfju3QatqIOeF5NW3O6tjvGGfKhvVk/view?usp=sharing
